@@ -1,0 +1,1 @@
+# pertualangan-makna-denotatif-dan-konotatif
